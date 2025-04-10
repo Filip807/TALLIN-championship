@@ -1,2 +1,1 @@
-# TALLIN-championship
-TALLIN 2025
+Bracking for 2025 is updated...
